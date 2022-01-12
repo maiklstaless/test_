@@ -1,3 +1,2 @@
-#Hi Maikl 
+#Hi Maikk. Today is a good day. 
 
-#How are you today? 
